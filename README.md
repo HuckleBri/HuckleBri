@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Brianna or Bria
+- 👋 Hi, I’m a human
 - 👀 I’m interested in Web development
 - 🌱 I’m currently learning Java and C++
 - 💞️ I’m looking to collaborate on anything
