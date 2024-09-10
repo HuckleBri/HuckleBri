@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me N/a
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Girls who code prgram helps a LOT!
+- ⚡ Fun fact: Im bored
 
 <!---
 HuckleBri/HuckleBri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
